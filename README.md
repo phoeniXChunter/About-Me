@@ -41,5 +41,4 @@ I’m always open to collaboration and learning from others in the tech communit
 
 Thank you for taking the time to read about me. I look forward to connecting with you!
 
-phoenixhuntr@gmail.com
 hunter.werhan.IT@outlook.com
