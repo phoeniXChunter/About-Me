@@ -40,3 +40,6 @@ I’m always looking for new projects to work on that challenge my skills and he
 I’m always open to collaboration and learning from others in the tech community. If you share similar interests or have any advice, feel free to reach out! I love connecting with like-minded individuals and exchanging ideas.
 
 Thank you for taking the time to read about me. I look forward to connecting with you!
+
+phoenixhuntr@gmail.com
+hunter.werhan.IT@outlook.com
